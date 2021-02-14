@@ -14,3 +14,6 @@ Life motto:
 
 - 📫 Reach me at mundurragacl (a📫t) gmail com
 
+
+![Reminder](https://github.com/mundurragacl/mundurragacl/blob/main/smallchanges.jpg)
+
